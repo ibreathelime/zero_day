@@ -1,2 +1,2 @@
 Hey there, I've learnt a lot
- I will be come **Strong** __Strong__ in this!
+ I will be come much **Stronger** in this!
